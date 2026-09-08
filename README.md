@@ -1,1 +1,1 @@
-privet
+TIP
